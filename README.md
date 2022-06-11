@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NadijaMucic
 - 👀 I’m interested in anything to do with design.
 - 🌱 I’m currently learning graphic design.
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate!
 - 📫 Reach me at admin@bynadija.com
 
 <!---
